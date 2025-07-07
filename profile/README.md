@@ -11,7 +11,7 @@ You should consider using an OnlyFans alternative if you’re looking to keep mo
 
 ## Why Exclu.at Is the Best Platform with 0% Commission
 
-For creators looking to leave OnlyFans due to its 20% commission fees, it's time to explore platforms that offer more freedom, better features, and above all, more profit. This is where **Exclu.at** stands out with **0% fees**, making it the best alternative to OnlyFans in 2025.
+For creators looking to leave OnlyFans due to its 20% commission fees, it's time to explore platforms that offer more freedom, better features, and above all, more profit. This is where **[Exclu.at](https://Exclu.at/)** stands out with **0% fees**, making it the best alternative to OnlyFans in 2025.
 
 ---
 
@@ -40,7 +40,7 @@ For creators looking to leave OnlyFans due to its 20% commission fees, it's time
 
 ## Top 10 OnlyFans Alternatives
 
-1. **Exclu.at** — 0% commission, total freedom  
+1. **[Exclu.at](https://Exclu.at/)** — 0% commission, total freedom  
 2. **Fansly** — Familiar layout, 20% fee  
 3. **Fanvue** — Modern UI, 20% fee  
 4. **LoyalFans** — Trusted tools, 20% fee  
